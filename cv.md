@@ -1,1 +1,2 @@
 Dmitrii Syropiatov
+Quality engineer
